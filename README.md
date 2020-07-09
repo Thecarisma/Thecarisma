@@ -2,4 +2,4 @@
 
 *They had a choice, all of them. They could have followed in the footsteps of good men like my father, or president Truman. Decent men who believed in a day's work for a day's pay. Instead they followed the droppings of lechers and communists and didn't realize that the trail led over a precipe until it was too late. Don't tell me they didn't have a choice. Now the whole world stands on the brink, staring down into bloody Hell, all those liberals and intellectuals and smooth talkers...and all of a sudden nobody can think of anything to say.*
 
-  **— October 12th, 1985 entry of Rorschach's journal**
+  **— Rorschach's journal. October 12th, 1985**
