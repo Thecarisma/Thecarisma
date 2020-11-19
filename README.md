@@ -1,6 +1,4 @@
 
-## #EndSARS #EndSWAT #SARSMUSTEND #SARSMUSTGO #EndPoliceBrutalityInNigeria
-
 *"Dog carcass in alley this morning. Tire tread on burst stomach. The city is afraid of me. I have seen it's true face. The streets are extended gutters and the gutters are full of blood and when the drains finally scab over all the vermin will drown. The accumulated filth of all their sex and murder will foam up about their waists and and all the whores and politicians will look up and shout "save us!"... and I'll look down and whisper "no".*
 
 *They had a choice, all of them. They could have followed in the footsteps of good men like my father, or president Truman. Decent men who believed in a day's work for a day's pay. Instead they followed the droppings of lechers and communists and didn't realize that the trail led over a precipe until it was too late. Don't tell me they didn't have a choice. Now the whole world stands on the brink, staring down into bloody Hell, all those liberals and intellectuals and smooth talkers...and all of a sudden nobody can think of anything to say.*
